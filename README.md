@@ -1,1 +1,0 @@
-# GAYOK21-apk
